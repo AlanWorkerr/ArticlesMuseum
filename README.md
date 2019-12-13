@@ -1,1 +1,1 @@
-[20191212_“不寒而栗”的爱情：北大自杀女生的聊天记录_南方周末](https://github.com/AlanWorkerr/ArticlesMuseum/commit/17aec53dcf733426605272a0f4d0d5da565273de?short_path=ad2e97c#diff-ad2e97cebf553b3c2faa764fc8a1e7fd)
+[20191212_“不寒而栗”的爱情：北大自杀女生的聊天记录_南方周末](https://github.com/AlanWorkerr/ArticlesMuseum/blob/master/articles/20191212_%E2%80%9C%E4%B8%8D%E5%AF%92%E8%80%8C%E6%A0%97%E2%80%9D%E7%9A%84%E7%88%B1%E6%83%85%EF%BC%9A%E5%8C%97%E5%A4%A7%E8%87%AA%E6%9D%80%E5%A5%B3%E7%94%9F%E7%9A%84%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95_%E5%8D%97%E6%96%B9%E5%91%A8%E6%9C%AB.md)
